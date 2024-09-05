@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... PC
 - 🌱 I’m currently learning ... about PC
 - 💞️ I’m looking to collaborate on ... nothing yet
-- 📫 How to reach me ... by foot
+- 📫 How to reach me ... by feet
 - 😄 Pronouns: ... today is beautiful
 - ⚡ Fun fact: ... I'm boy :-)
 
